@@ -1,2 +1,0 @@
-# Liqianru
-Gun store
